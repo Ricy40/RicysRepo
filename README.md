@@ -6,4 +6,4 @@ Just random stuff I will need to use at certain points.
 
 Here - [Patreon](https://www.patreon.com/ricy40)
 Here - [Twitter](https://twitter.com/Ricy40)
-Or here - [Instagram](https://www.instagram.com/ricy.fx/)
+Or Here - [Instagram](https://www.instagram.com/ricy.fx/)
